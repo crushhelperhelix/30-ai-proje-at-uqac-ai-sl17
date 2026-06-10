@@ -1,4 +1,4 @@
-# 
+# Ligero 30+ AI Projects at UQAC herramientas. Con optimización de modelos y reconocimiento de voz — optimizado para el máximo rendimiento.
 
 
 
